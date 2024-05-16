@@ -1,2 +1,2 @@
-# Portafolio
+# Portafolio II Bimestre
 ## Ricardo Colindres
